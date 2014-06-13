@@ -1,1 +1,1 @@
-Integrantes German y Petit
+Integrantes German Lara y Arturo Petit
